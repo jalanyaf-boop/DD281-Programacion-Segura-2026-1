@@ -6,7 +6,7 @@
 
 **Nombre del estudiante:** Wilder Nicanor Norabuena Ramirez
 
-**Grupo / Sección:** VIII CICLO
+**Grupo / Sección:** 3 GRUPO
 
 **Fecha:** 14 de junio 2026
 
